@@ -1,6 +1,6 @@
-Na zahradě zdál se
-Právě dítěti sen
-Tu oběd byl zahájen
+Na zahradě zdál se  
+Právě dítěti sen  
+Tu oběd byl zahájen  
 
-Kde je chlapec, ptá se máma
-Jde za ním, on samá sláma
+Kde je chlapec, ptá se máma  
+Jde za ním, on samá sláma  
